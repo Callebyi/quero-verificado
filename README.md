@@ -1,0 +1,2 @@
+# quero-verificado
+Verificado
